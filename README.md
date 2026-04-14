@@ -14,8 +14,9 @@
 
 ### ✦ about me ✦
 
-🌸 &nbsp;"Almost always, the creative dedicated minority has made the world better." – Martin Luther King Jr
 🎀 &nbsp;Multidisciplinary Designer
+
+🌸 &nbsp;"Almost always, the creative dedicated minority has made the world better." – Martin Luther King Jr
 
 </div>
 
